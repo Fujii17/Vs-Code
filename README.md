@@ -1,3 +1,3 @@
 
-                                                                          *Espero que goste e divirta-se em busca da cidade perdida!*
+                                            *Espero que goste e divirta-se em busca da cidade perdida!*
 
